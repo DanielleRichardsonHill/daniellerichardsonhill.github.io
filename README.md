@@ -1,1 +1,0 @@
-# daniellerichardsonhill.github.io
